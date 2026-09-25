@@ -1,1 +1,3 @@
 # WenjingEvelynLi
+I'm Evelyn Li, an HR and AI transformation consultant based in Provo, Utah. For more than 15 years, I've helped organizations build stronger teams through talent assessment, research and advisory, and talent mobility. As Managing Partner of iLead, I advise leaders on talent strategy and change. Before that, I led commercial growth across Greater China for PSI Cubiks. At CEB (now Gartner), I led the market for the Challenger Sale program across mainland China, Hong Kong, and Taiwan. As a business development director at Lee Hecht Harrison, I earned Sales SuperStar awards. Today I focus on helping companies adopt AI in a way their people actually embrace, and I learn by building with AI tools myself. I work fluently in English and Mandarin.
+
